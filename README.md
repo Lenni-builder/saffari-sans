@@ -1,4 +1,4 @@
-# saffari-sans
+# Saffari Sans
 
 A kool fond for ur use!!
 
