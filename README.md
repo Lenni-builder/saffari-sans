@@ -1,6 +1,6 @@
-# Saffari Sans
+# HQ Fonts
 
-A kool fond for ur use!!
+A kool fonds for ur use!!
 
 Lisesed undere CC-BY-SA 4.0!
 
